@@ -1,4 +1,4 @@
-### Hello! 👋 I'm Shinkai Asahara
+### Hello! 👋 I'm Jenelyn
 
 
 <p><-- very demure very mindful very gae</p>
